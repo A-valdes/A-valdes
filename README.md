@@ -4,6 +4,7 @@
 - :computer: Me gusta la programacíon, se un poco de C+, Phyton, y R 
 - Mis pronombres son: ella / she / her
 - Look at my dog! :eyes:
+
 <img>![image](https://user-images.githubusercontent.com/66651727/182474845-fa1a5f0e-9676-4a11-9853-c09b70f230b2.png)
 
 _________________________________________________________________________________________________________________________________________________________________________
